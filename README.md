@@ -1,6 +1,6 @@
-- 👋 Hi, you can refer to me as Zee or Dev.
+- 👋 Hi, you can refer to me as Cinder.
 - 🕶 Pronouns he/they/it
-- interests Sonic the hedgehog, FOP a new wish, dandy's world, TDI and disventure camp.
+- interests Sonic the hedgehog, FOP a new wish, dandy's world, TDI, disventure camp, etc.
 - I'm aroace.
 - Trans and Demiboy
 - I play roblox, ponytown, and Sonic games.
