@@ -1,4 +1,4 @@
-- 👋 Hi, you can refer to me as Cinder.
+- 👋 Hi, you can refer to me as Cole.
 - 🕶 Pronouns he/they/it
 - interests Sonic the hedgehog, FOP a new wish, dandy's world, TDI, disventure camp, etc.
 - I'm aroace.
